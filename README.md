@@ -40,7 +40,7 @@ Teacher List
 
 202-D List
 1. Nabua, Mark Joseph H.
-2.
+2. Masambal, John Paul M.
 3.
 4.
 5.
