@@ -6,7 +6,7 @@ Teacher List
 202-C List
 1. Idria, Tracy Allen P.
 2. Golosino, Atheena Ghabriell M.
-3. Madlangbayan, Lenard G.
+3. 
 4.
 5. 
 6. 
@@ -26,7 +26,7 @@ Teacher List
 20. 
 21. 
 22. 
-23. 
+23. Madlangbayan, Lenard G.
 24. 
 25. 
 26. 
