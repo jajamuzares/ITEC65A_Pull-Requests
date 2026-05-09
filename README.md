@@ -9,7 +9,7 @@ Teacher List
 3.
 4.
 5. 
-6. 
+6. Mansueto,nikyross L.
 7. 
 8. 
 9. 
